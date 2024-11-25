@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... a Hindi friend Anyone who can help to me to deploy the bot for me
 - 📫 How to reach me ...via telegram @DramaMob
 - 😄 Pronouns: ...He
-- ⚡ Fun fact: ...I Love Kdramas and now A day I Am Jobles 😭😂
+- ⚡ Fun fact: ...I Love Kdramas and now A day I Am Jobles 😭😂 and i m Weak in english 😭
 
 <!---
 HyperRepo/HyperRepo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
